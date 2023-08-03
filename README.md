@@ -14,3 +14,7 @@ https://drive.google.com/file/d/1Q5q6739jq78ueMJc3LsSaZVeS1r5Rnwd/view?usp=shari
 
 **AKSHAY CHANDRE ICP5 VIDEO**
 https://drive.google.com/file/d/19XfvEmbcArHp5KYD3aibV6yaiu-D1Z15/view?usp=sharing
+
+**Journal Vide0**
+https://drive.google.com/file/d/1P3f0IE2dnf1RSVnLlYBJx6PZ86WM6tP7/view?usp=sharing
+![image](https://github.com/akshaychandre47/AkshayChandre_NN-DL_Summer/assets/100583683/5e90bc73-7786-4a12-aa69-f33004de8206)
